@@ -1,1 +1,1 @@
-Alx is the best
+God is good all the time
